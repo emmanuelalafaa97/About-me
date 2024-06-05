@@ -7,6 +7,6 @@
 ##### On a personal level, I am an advocate for personal and digital privacy especially in the age of data ubiquity due to the internet revolution. When I am not working, I spend my time reading books on geopolitics, business and corporate leadership. I also love listening to educational podcasts and I'm a regular sports follower. 
 
 ##### You can find me on socials ;
-##### Linkedin <http='https://www.linkedin.com/in/emmanuelalafaa'/>
+##### Linkedin (www.linkedin.com/in/emmanuelalafaa)
 
 
